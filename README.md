@@ -1,2 +1,1 @@
-# trello
-Simple trello appa
+#Trello clone

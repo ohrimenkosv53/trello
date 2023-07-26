@@ -1,1 +1,1 @@
-everybody about close face itself move low written straight labor metal morning rocky cent underline
+ancient attention clay drink better cotton copy yet nervous chicken afraid become palace chest getting

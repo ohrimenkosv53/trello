@@ -1,1 +1,1 @@
-shells gun search strong sleep final great bus stuck equator measure classroom apartment hundred wrong
+elephant ten gas chief lunch design hospital quick birthday valley remove who stream wonder choose

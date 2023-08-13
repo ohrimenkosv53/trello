@@ -1,1 +1,1 @@
-skill central stopped talk situation everything fastened longer poor bottom fell religious people spread twenty
+rock men major stiff our coat per mother whale shoe community nothing factor another respect

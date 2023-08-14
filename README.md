@@ -1,1 +1,1 @@
-rock men major stiff our coat per mother whale shoe community nothing factor another respect
+softly handle adventure horn familiar history ordinary conversation higher are army move partly stop upper

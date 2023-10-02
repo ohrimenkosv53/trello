@@ -1,1 +1,1 @@
-nearer new hurt describe cast judge grabbed indicate promised want construction than older cowboy pound
+sentence equator tall sad silly president just secret north understanding alive darkness practice number halfway

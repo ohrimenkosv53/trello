@@ -1,1 +1,1 @@
-does verb closer riding nobody pretty driven shirt fox writer led consider chapter type mass
+blank calm except hurry dark who lonely let is idea recognize scared curious plastic tears

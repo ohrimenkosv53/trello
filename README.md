@@ -1,1 +1,1 @@
-finest balance flower people bound spend rhyme offer wheat family people middle golden zebra rapidly
+duty weak shoe sound poet right copper month else per strength school learn caught wool

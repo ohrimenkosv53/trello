@@ -1,1 +1,1 @@
-duty weak shoe sound poet right copper month else per strength school learn caught wool
+cow dozen fuel valley week count block discovery been mixture been rush death dig tall

@@ -1,1 +1,1 @@
-term rock stood seems statement piano however bet mad cap sometime exact factory bound my
+earth carefully six fewer truth orbit my scientific scale bound necessary not tank guide nose

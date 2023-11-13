@@ -1,1 +1,1 @@
-shake wild laugh coast type man rhythm forward comfortable hidden typical storm sitting purpose pan
+sight tribe race move frequently ring handle customs dried below coach buried tongue hundred mad

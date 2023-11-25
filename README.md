@@ -1,1 +1,1 @@
-dead dangerous dropped total cheese planned lower collect shadow independent be ought single stood highway
+ahead out bark feet solar teacher bottle plan nor further piece package whole war gently

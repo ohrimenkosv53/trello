@@ -1,1 +1,1 @@
-plain consonant rising herself season join treated slightly settle sum football wonderful afternoon path measure
+scared nearby doubt vegetable tower black facing kids kitchen easier satisfied radio wool question accurate

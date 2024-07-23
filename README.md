@@ -1,1 +1,1 @@
-special talk clock trunk sing gently court explore zipper various weak across harbor closely popular
+swam press slightly pure sit monkey fire wagon yet card broken spin cent struggle donkey
